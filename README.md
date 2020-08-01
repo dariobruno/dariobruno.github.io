@@ -38,3 +38,6 @@ Atención Psicoterapéutica de personas privadas de su libertad. Unidad 19 y Com
 #### Docente a cargo
 ###### 'Fantasía y deseo' en la Escuela de Clínica Psicoanalítica del Centro Oro Asociación Civil
 
+## Contacto
+[![LinkedIn](https://img.shields.io/badge/Dario%20Bruno-LinedIn-blue)](http://linkedin.com/in/darioebruno)
+[![Website](https://img.shields.io/badge/-www.dariobruno.com.ar-E34F26?style=flat&amp;logo=HTML5&amp;logoColor=white)](http://dariobruno.com.ar)
