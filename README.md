@@ -23,8 +23,8 @@ Atención Psicoterapéutica de personas privadas de su libertad. Unidad 19 y Com
 
 ## ✅ Actividad Académica Actual
 
-##### Profesor Adjunto Interino 
-**'Escuelas Psicológicas Contemporáneas' de la Licenciatura en Musicoterapia. Facultad de Psicología – UBA.**
+#### Profesor Adjunto Interino
+###### 'Escuelas Psicológicas Contemporáneas' de la Licenciatura en Musicoterapia. Facultad de Psicología – UBA.
 
 ###### Jefe de Trabajos Prácticos *de la asignatura 'Psicología' del Ciclo Básico Común de la UBA.*
 
