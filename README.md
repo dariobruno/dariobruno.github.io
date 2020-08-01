@@ -7,6 +7,12 @@
 
 #### Psicoanalista. Profesor Universitario en grado y posgrado. Investigador categorizado, miembro de equipo UBACyT con varios artículos publicados. Amplia experiencia en psicología clínica. Ex-Psicólogo clínico del Servicio Penitenciario Federal. Director de Tesis de Posgrado. Jurado en Tesinas de grado.
 
+## ✅ Educación
+##### Doctorando - Facultad de Psicología - UBA
+##### Magister en Docencia Universitaria . Universidad de Buenos Aires
+##### Licenciado en Psicología - Universidad de Buenos Aires
+##### Técnico en Computación - E.N.E.T. Nº1 Otto Krause
+
 
 ## ✅ Actividad Profesional
 
@@ -40,6 +46,8 @@ Atención Psicoterapéutica de personas privadas de su libertad. Unidad 19 y Com
 
 #### Docente a cargo
 ###### 'Fantasía y deseo' en la Escuela de Clínica Psicoanalítica del Centro Oro Asociación Civil
+
+
 
 ## Contacto
 [![LinkedIn](https://img.shields.io/badge/Dario%20Bruno-LinedIn-blue)](http://linkedin.com/in/darioebruno)
