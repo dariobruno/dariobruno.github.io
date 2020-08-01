@@ -1,5 +1,5 @@
 # Darío Bruno - Psicólogo
-![Darío](assets/images/avatard.png)
+![Darío](/resume/public/assets/images/avatard.png)
 
 
 [![LinkedIn](https://img.shields.io/badge/Dario%20Bruno-LinedIn-blue)](http://linkedin.com/in/darioebruno)
