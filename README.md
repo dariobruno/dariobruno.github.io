@@ -48,7 +48,7 @@ Atención Psicoterapéutica de personas privadas de su libertad. Unidad 19 y Com
 ###### 'Fantasía y deseo' en la Escuela de Clínica Psicoanalítica del Centro Oro Asociación Civil
 
 ## ✅ Investigación científica
-> Investigador Categorizado. Cat V (2013) 
+  #####   Investigador Categorizado. Cat V (2013) 
   #####   Expositor en Jornadas y Congresos Internacionales con más de 20 publicaciones con referato internacional
   #####   Integrante equipo de Investigación UBACyT (2010-2012)
   #####   Publicaciones varias en revistas, artículo de libro.
