@@ -17,39 +17,39 @@
 ## ✅ Actividad Profesional
 
 ##### Psicoanalista en consultorio privado. Consultorio privado | 2000 - Actualidad
-Clínica de adultos.
+- Clínica de adultos.
 
 ##### Miembro Titular del Centro Oro Centro Oro Asociación Civil | 2016 - Actualidad
-Coordinador Departamento de Psicoanálisis - Coordinación del Departamento de Psicoanálisis del Centro Oro.
-Comisión de Docencia - Miembro de la Comisión de Docencia y Escuela del Centro Oro.
+- Coordinador Departamento de Psicoanálisis del Centro Oro.
+- Miembro de la Comisión de Docencia y Escuela del Centro Oro.
 
 ###### Dirección Técnica de Orientación al Estudiante (DOE - UBA) DOE - Universidad de Buenos Aires | 2013 - 2015
-Integrante del equipo virtual de la DOE.
+- Integrante del equipo virtual de la DOE.
 
 ###### Psicólogo Clínico - Servicio Penitenciario Federal | 2005 - 2015
-Atención Psicoterapéutica de personas privadas de su libertad. Unidad 19 y Complejo Penitenciario II (Marcos Paz) del Servicio Penitenciario Federal. Realizando tareas de atención psicológica clínica del Servicio de Asistencia Médica. Participante del Consejo Correccional representando al área médico asistencial. Coordinador de grupos terapéuticos y de reflexión de internos con Pre-libertad.
+> Atención Psicoterapéutica de personas privadas de su libertad. Unidad 19 y Complejo Penitenciario II (Marcos Paz) del Servicio Penitenciario Federal. Realizando tareas de atención psicológica clínica del Servicio de Asistencia Médica. Participante del Consejo Correccional representando al área médico asistencial. Coordinador de grupos terapéuticos y de reflexión de internos con Pre-libertad.
 
 
 ## ✅ Actividad Académica Actual
 
 #### Profesor Adjunto Interino
--'Escuelas Psicológicas Contemporáneas' de la Licenciatura en Musicoterapia. Facultad de Psicología – UBA.
+- 'Escuelas Psicológicas Contemporáneas' de la **Licenciatura en Musicoterapia. Facultad de Psicología – UBA.**
 
 #### Jefe de Trabajos Prácticos
--'Psicología' del Ciclo Básico Común de la UBA.
+- 'Psicología' del **Ciclo Básico Común de la UBA.**
 
 #### Docente de Posgrado
--'Intervención Institucional en psicología forense' en la Carrera de Especialización en Psicología Forense. Facultad de Psicología – UBA
+- 'Intervención Institucional en psicología forense' en la **Carrera de Especialización en Psicología Forense. Facultad de Psicología – UBA**
 
 #### Docente de Posgrado
--'Clínica en las Instituciones Carcelarias' en la Carrera de Especialización en Psicología Clínica con Orientación Psicoanalítica. Facultad de Psicología – UBA
+- 'Clínica en las Instituciones Carcelarias' en la **Carrera de Especialización en Psicología Clínica con Orientación Psicoanalítica. Facultad de Psicología – UBA**
 
 #### Docente a cargo
--'Fantasía y deseo' en la Escuela de Clínica Psicoanalítica del Centro Oro Asociación Civil
+- 'Fantasía y deseo' en la **Escuela de Clínica Psicoanalítica del Centro Oro**
 
 ## ✅ Investigación científica
 - Investigador Categorizado. Cat V (2013) 
-- Expositor en Jornadas y Congresos Internacionales con más de 20 publicaciones con referato internacional
+- Expositor en Jornadas y Congresos Internacionales *con más de 20 publicaciones con referato internacional*
 - Integrante equipo de Investigación UBACyT (2010-2012)
 - Publicaciones varias en revistas, artículo de libro.
 
