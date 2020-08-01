@@ -1,8 +1,11 @@
 # Darío Bruno - Psicólogo
 ![](http://www.dariobruno.com.ar/assets/images/avatard.png)
+
+
 [![LinkedIn](https://img.shields.io/badge/Dario%20Bruno-LinedIn-blue)](http://linkedin.com/in/darioebruno)
-## 
-Psicoanalista. Profesor Universitario en grado y posgrado. Investigador categorizado, miembro de equipo UBACyT con varios artículos publicados. Amplia experiencia en psicología clínica. Ex-Psicólogo clínico del Servicio Penitenciario Federal. Director de Tesis de Posgrado. Jurado en Tesinas de grado.
+
+
+## Psicoanalista. Profesor Universitario en grado y posgrado. Investigador categorizado, miembro de equipo UBACyT con varios artículos publicados. Amplia experiencia en psicología clínica. Ex-Psicólogo clínico del Servicio Penitenciario Federal. Director de Tesis de Posgrado. Jurado en Tesinas de grado.
 
 
 ## ✅ Actividad Profesional
