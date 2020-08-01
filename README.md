@@ -33,19 +33,19 @@ Atención Psicoterapéutica de personas privadas de su libertad. Unidad 19 y Com
 ## ✅ Actividad Académica Actual
 
 #### Profesor Adjunto Interino
-###### 'Escuelas Psicológicas Contemporáneas' de la Licenciatura en Musicoterapia. Facultad de Psicología – UBA.
+-'Escuelas Psicológicas Contemporáneas' de la Licenciatura en Musicoterapia. Facultad de Psicología – UBA.
 
 #### Jefe de Trabajos Prácticos
-###### 'Psicología' del Ciclo Básico Común de la UBA.
+-'Psicología' del Ciclo Básico Común de la UBA.
 
 #### Docente de Posgrado
-###### 'Intervención Institucional en psicología forense' en la Carrera de Especialización en Psicología Forense. Facultad de Psicología – UBA
+-'Intervención Institucional en psicología forense' en la Carrera de Especialización en Psicología Forense. Facultad de Psicología – UBA
 
 #### Docente de Posgrado
-###### 'Clínica en las Instituciones Carcelarias' en la Carrera de Especialización en Psicología Clínica con Orientación Psicoanalítica. Facultad de Psicología – UBA
+-'Clínica en las Instituciones Carcelarias' en la Carrera de Especialización en Psicología Clínica con Orientación Psicoanalítica. Facultad de Psicología – UBA
 
 #### Docente a cargo
-###### 'Fantasía y deseo' en la Escuela de Clínica Psicoanalítica del Centro Oro Asociación Civil
+-'Fantasía y deseo' en la Escuela de Clínica Psicoanalítica del Centro Oro Asociación Civil
 
 ## ✅ Investigación científica
 - Investigador Categorizado. Cat V (2013) 
